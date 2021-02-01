@@ -1,6 +1,6 @@
 # CV
 Kristaps Fedosejevs
-
+<img src="https://sun912.userapi.com/impf/vO_2fziZZgGkSKTm0QhbGPApzWKDsoUkPYt8Vw/BUDESQ0asBU.jpgsize=1080x1884&quality=96&proxy=1&sign=745d1330a2fcc583c3ba64713960c13a&type=album" width="10%" height="10%">
 
 
 ## Par mani: 
